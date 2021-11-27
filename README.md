@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Pichet Thantipiputpinyo
-- 👀 I’m interested in good woman
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in The Secret of the Mind and the Universe
+- 🌱 I’m currently learning how to make the better life by simple
+- 💞️ I’m looking to collaborate on the universe
+- 📫 How to reach me via telepathy
 
 https://eayx.github.io/
 
